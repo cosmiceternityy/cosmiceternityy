@@ -67,6 +67,7 @@ too many code lines ghhh
 <img width="99" height="56" alt="metal_sonic_stamp_by_rothstein_kaiser_d4xr36f-fullview" src="https://github.com/user-attachments/assets/9fb08035-2dcf-4dcb-bb7d-1563cf1d650f" />
 ![rouge](https://github.com/user-attachments/assets/62a2c4e9-e20c-46d8-90c3-8f22be217724)
 ![shadow3](https://github.com/user-attachments/assets/7b507ed8-9e69-45fb-8067-cd1662992876)
+<img width="99" height="56" alt="066_by_kiko_tanaka_dd2gcql-fullview" src="https://github.com/user-attachments/assets/de7d0e34-4ae0-40c1-9ec8-05ac84b82db9" />
 
 
 
