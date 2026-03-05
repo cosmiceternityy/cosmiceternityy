@@ -1,16 +1,16 @@
 ![](https://komarev.com/ghpvc/?username=cosmiceternityy&color=003D61&style=plastic&label=soniclings)
 
-wip!!
+hi!! go sign my ata! 
 
-hi!! go sign my ata! I go by she/her mainly but I don't care at all for pronouns :D so please use any you want, even it/its
+I'm Dorian! You can call me Dory or the name of any pony I may be using. It's okay to give me nicknames too! I go by she/her mainly but I don't care at all for pronouns :D so please use any you want, even it/its
 
 no dni! I hide/mute freely. minors under 15 iwc, it's fine if you want to cuddle with me but I won't friend you.
 
-sonic is my main fandom and interest  you'll rarely see me using a sonic skin outside of sonic area though
+I'm afk/offtab a LOT, I prefer if you whisper to interact - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens
 
-.
+I struggle socially (yes, even behind a screen) I hardly approach/interact with anyone outside of my friend group and I'm always anxious of bothering, so I would REALLY appreciate if you interact first!
 
-too many code lines ghhh
+sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, epic the musical, marvel/dc, etc!
 
 ![a17](https://github.com/user-attachments/assets/a1760577-c4a5-42dc-a110-6c753862da02)
 ![aroace](https://github.com/user-attachments/assets/eef497fa-3b01-44e7-bb60-bb05bc741c6c)
