@@ -2,7 +2,13 @@
 
 wip!!
 
+hi!! go sign my ata! I go by she/her mainly but I don't care at all for pronouns :D so please use any you want, even it/its
 
+no dni! I hide/mute freely. minors under 15 iwc, it's fine if you want to cuddle with me but I won't friend you.
+
+sonic is my main fandom and interest  you'll rarely see me using a sonic skin outside of sonic area though
+
+.
 
 too many code lines ghhh
 
