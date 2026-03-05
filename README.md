@@ -49,6 +49,11 @@ too many code lines ghhh
 ![d4mwpam-2840f9fd-d2ce-4835-9223-9afd0f9120c9](https://github.com/user-attachments/assets/e9f7b83f-d613-4d11-8428-673cecfb9de2)
 ![dit26hc-d9f5499f-bf2a-45f0-8d97-273be63846af](https://github.com/user-attachments/assets/de5dbd2a-1b15-4b0f-9aaf-2f82ecad828b)
 <img width="99" height="56" alt="sonic_r_stamp_by_laprasking_d4e1z6u-fullview" src="https://github.com/user-attachments/assets/99f6ab4b-977e-45ca-8c10-bf58861cee10" />
+![manic_stamp_by_fortunadraken_d1g8fmh-fullview](https://github.com/user-attachments/assets/05e14cb9-e9b0-43bd-9cf8-2826bb8b5fcc)
+<img width="99" height="56" alt="re_made_manic_stamp_by_blazecherry_d5oxtoa-fullview" src="https://github.com/user-attachments/assets/5859bc63-5829-4d44-9ee1-1caadb5a7613" />
+![dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920](https://github.com/user-attachments/assets/9b671081-cca7-43b6-828c-411e7d5d33e9)
+<img width="99" height="56" alt="217_by_kiko_tanaka_ddj5jqc-fullview" src="https://github.com/user-attachments/assets/5d2f83c7-090e-4cf7-83be-e05e128fe95d" />
+<img width="99" height="56" alt="sonic_fan_stamp_by_penton_dwhckx-fullview" src="https://github.com/user-attachments/assets/0d4155d2-6d76-4e92-8327-78c616a9c188" />
 
 
 
