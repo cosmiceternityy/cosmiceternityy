@@ -6,7 +6,14 @@ wip!!
 
 too many code lines ghhh
 
+![a17](https://github.com/user-attachments/assets/a1760577-c4a5-42dc-a110-6c753862da02)
 ![aroace](https://github.com/user-attachments/assets/eef497fa-3b01-44e7-bb60-bb05bc741c6c)
+![v82](https://github.com/user-attachments/assets/deeaf2ea-4c69-4257-82e4-d28df2d62b95)
+![v45](https://github.com/user-attachments/assets/d9bcbdb2-719c-4e33-a4ee-ef5f6bc3e933)
+![v6](https://github.com/user-attachments/assets/6b96e26d-2eb8-444a-8f96-b5bc710d59da)
+![v40](https://github.com/user-attachments/assets/cd538a86-f510-4c91-a1a5-83971ff53460)
+![v55](https://github.com/user-attachments/assets/a274752b-a557-4ed2-8491-afff99e80045)
+![g124](https://github.com/user-attachments/assets/5ff5d9e2-ded4-4b53-b636-1d26f54152fb)
 ![01c2aeba](https://github.com/user-attachments/assets/18060ca7-931e-4006-8a6a-47f18ea36490)
 ![c910632d](https://github.com/user-attachments/assets/8694ea2d-c8b6-4d8f-8403-7c66dfa9b4c3)
 ![e31](https://github.com/user-attachments/assets/6b1d9dca-38ed-4124-be0e-7f48b08c5cb2)
@@ -26,6 +33,9 @@ too many code lines ghhh
 ![c6790e4d](https://github.com/user-attachments/assets/3a11d3a3-700d-486a-866b-9a7485772b5c)
 ![79e57143](https://github.com/user-attachments/assets/6e2711d1-bf85-4e0d-b952-2bed3e6f4084)
 ![f647f873](https://github.com/user-attachments/assets/02e72f73-3f20-4079-8541-2c87f66768c2)
+![e118](https://github.com/user-attachments/assets/c1b7fea0-df76-447c-ab47-977591d6f6c8)
+![e102](https://github.com/user-attachments/assets/7c7194d9-ee0d-4541-9d8b-8ff4d2944120)
+![d102](https://github.com/user-attachments/assets/260447f7-5422-4172-a554-dbe35a1c792f)
 
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
 ![dfkc373-4c6ef5b1-f22b-410e-8c22-dd8f4c050700](https://github.com/user-attachments/assets/b3e6b8a2-3d93-48ac-a84c-312fc8921d12)
@@ -40,6 +50,7 @@ too many code lines ghhh
 ![d7wv1fa-2610f52b-d1f9-41cb-abd3-02e8bf8f6256](https://github.com/user-attachments/assets/0d2dea16-c444-4cab-b8e3-54901b998d81)
 ![d9f5d1k-7a564ccb-7451-40f5-9f75-73e6637ccb2b](https://github.com/user-attachments/assets/931ed7ea-5ca2-405f-b6c2-5bb013497c74)
 <img width="99" height="56" alt="amy_stamp_by_knightmare_moon_d8gty5l-fullview" src="https://github.com/user-attachments/assets/ce3252c5-0169-446c-a2d2-1d2a7ddcc650" />
+![sticks_x_amy_stamp_by_shizukanamono_dd7i21j-fullview](https://github.com/user-attachments/assets/00bc14d6-ccf6-4eaf-bffb-9b312b780635)
 <img width="99" height="55" alt="rlea" src="https://github.com/user-attachments/assets/630d9ff0-40f3-4c33-b08f-25504e8f1bd3" />
 <img width="99" height="56" alt="217_by_kiko_tanaka_ddj5jqc-fullview" src="https://github.com/user-attachments/assets/5d2f83c7-090e-4cf7-83be-e05e128fe95d" />
 ![shadow_the_hedgehog_stamp_by_gallerica_daayip2-fullview](https://github.com/user-attachments/assets/da995c51-0779-45e2-8eee-ec6206b7c8d6)
@@ -65,10 +76,13 @@ too many code lines ghhh
 ![dc5h9go-bd3b3402-35da-4007-bd91-5c3165707530](https://github.com/user-attachments/assets/44034981-586f-4f84-8499-c8dda6090b1a)
 <img width="99" height="56" alt="sonic_r_stamp_by_laprasking_d4e1z6u-fullview" src="https://github.com/user-attachments/assets/99f6ab4b-977e-45ca-8c10-bf58861cee10" />
 <img width="99" height="56" alt="metal_sonic_stamp_by_rothstein_kaiser_d4xr36f-fullview" src="https://github.com/user-attachments/assets/9fb08035-2dcf-4dcb-bb7d-1563cf1d650f" />
+![knuxadow_stamp_by_shizukanamono_dda2g4y-fullview](https://github.com/user-attachments/assets/b2416ac4-21ea-427b-92a1-48f905d0dce9)
+![wave_x_rouge_stamp_by_shizukanamono_dd875bh-fullview](https://github.com/user-attachments/assets/62b75601-f326-4881-bca3-996bbfaded5d)
 ![rouge](https://github.com/user-attachments/assets/62a2c4e9-e20c-46d8-90c3-8f22be217724)
 ![shadow3](https://github.com/user-attachments/assets/7b507ed8-9e69-45fb-8067-cd1662992876)
 <img width="99" height="56" alt="066_by_kiko_tanaka_dd2gcql-fullview" src="https://github.com/user-attachments/assets/de7d0e34-4ae0-40c1-9ec8-05ac84b82db9" />
-
+<img width="99" height="57" alt="silvamy_stamp_by_migueruchan_d7bd3ve-fullview" src="https://github.com/user-attachments/assets/922a6f30-de36-4112-affd-0d245de17487" />
+![dbegq8w-1595698f-737d-44b4-ac32-3306a85b8717](https://github.com/user-attachments/assets/f8106259-88c8-4c19-9967-2250cc04255b)
 
 
 
