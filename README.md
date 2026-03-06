@@ -12,7 +12,7 @@ my native language is spanish, because of this I make many typos and my grammar 
 
 sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, epic the musical, marvel/dc, etc!
 
-also, I'm a multishipper!! I love most sonic pairings, please feel free to yap about your ship with me, specially if it is a rarepair ♡
+also, I'm a multishipper!! I love most sonic pairings, feel free to yap about your ship with me, specially if it is a rarepair ♡
 
 ![a17](https://github.com/user-attachments/assets/a1760577-c4a5-42dc-a110-6c753862da02)
 ![aroace](https://github.com/user-attachments/assets/eef497fa-3b01-44e7-bb60-bb05bc741c6c)
@@ -94,4 +94,4 @@ also, I'm a multishipper!! I love most sonic pairings, please feel free to yap a
 ![d8twhmz-cff9f2e1-98ae-4aeb-9b35-5b411961af84](https://github.com/user-attachments/assets/a320e2f9-6ae3-48eb-8ac9-6427279120fd)
 <img width="99" height="56" alt="_010__mania_sonic_stamp_by_rukia_stamps_daio6a4-fullview" src="https://github.com/user-attachments/assets/30ea753f-bce7-460f-ac8b-0e7078b707e2" />
 
-I don't mind taking inspo of my skins, but please be original and [don't copy me](https://i.imgur.com/oA1o5Be.png)
+I don't mind taking inspo of my skins but please [don't copy me](https://i.imgur.com/oA1o5Be.png)
