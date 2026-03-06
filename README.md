@@ -93,3 +93,5 @@ also, I'm a multishipper!! I love most sonic pairings, please feel free to yap a
 ![dbegq8w-1595698f-737d-44b4-ac32-3306a85b8717](https://github.com/user-attachments/assets/f8106259-88c8-4c19-9967-2250cc04255b)
 ![d8twhmz-cff9f2e1-98ae-4aeb-9b35-5b411961af84](https://github.com/user-attachments/assets/a320e2f9-6ae3-48eb-8ac9-6427279120fd)
 <img width="99" height="56" alt="_010__mania_sonic_stamp_by_rukia_stamps_daio6a4-fullview" src="https://github.com/user-attachments/assets/30ea753f-bce7-460f-ac8b-0e7078b707e2" />
+
+I don't mind taking inspo of my skins, but please be original and [don't copy me](https://media.discordapp.net/attachments/1426323174051811360/1479561714579279893/Screenshot_20251128-123136.png?ex=69ac7cb9&is=69ab2b39&hm=8efc0bb5f08adbaa4932c94d2baf58d263c8f0821404a7a7613d2b9e9d53c743&=&format=webp&quality=lossless&width=226&height=503)
