@@ -62,7 +62,7 @@ also, I'm a multishipper!! I love most sonic pairings, please feel free to yap a
 <img width="99" height="55" alt="rlea" src="https://github.com/user-attachments/assets/630d9ff0-40f3-4c33-b08f-25504e8f1bd3" />
 ![knuxadow_stamp_by_shizukanamono_dda2g4y-fullview](https://github.com/user-attachments/assets/b2416ac4-21ea-427b-92a1-48f905d0dce9)
 <img width="99" height="56" alt="217_by_kiko_tanaka_ddj5jqc-fullview" src="https://github.com/user-attachments/assets/5d2f83c7-090e-4cf7-83be-e05e128fe95d" />
-![shadow_the_hedgehog_stamp_by_gallerica_daayip2-fullview](https://github.com/user-attachments/assets/da995c51-0779-45e2-8eee-ec6206b7c8d6)
+<img width="99" height="57" alt="d7nuktq-51b5ba5b-a67c-49bb-b265-df9a3ed973c0" src="https://github.com/user-attachments/assets/ce732cb1-1e87-452c-ae56-8c31dd422711" />
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_1_by_ana_mae_d1ikqr0-fullview" src="https://github.com/user-attachments/assets/33ef3653-6015-4078-81cb-c3e7559e6a60" />
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_3_by_ana_mae_d1o7kf7-fullview" src="https://github.com/user-attachments/assets/e1759a18-ac4f-4740-b8a7-48a3b8b6edb0" />
 ![sonic_the_hedgehog_stamp_by_karmarsi_kedamoki_d2pch7c-fullview](https://github.com/user-attachments/assets/0e4781e2-d32f-4f44-a207-bc5a5412bfd4)
