@@ -81,7 +81,7 @@ also, I'm a multishipper!! I love most sonic pairings, feel free to yap about yo
 ![d4mwpam-2840f9fd-d2ce-4835-9223-9afd0f9120c9](https://github.com/user-attachments/assets/e9f7b83f-d613-4d11-8428-673cecfb9de2)
 ![dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920](https://github.com/user-attachments/assets/9b671081-cca7-43b6-828c-411e7d5d33e9)
 ![manic_stamp_by_fortunadraken_d1g8fmh-fullview](https://github.com/user-attachments/assets/05e14cb9-e9b0-43bd-9cf8-2826bb8b5fcc)
-<img width="99" height="56" alt="stamp__mighty_the_armadillo_by_ohfoolishone_d5u6als-fullview" src="https://github.com/user-attachments/assets/90f1c15a-42bc-4ffd-adaf-21c08b27efc9" />
+<img width="99" height="56" alt="mighty_and_ray_stamp_by_jc_the_penguin_d5rus8p-fullview" src="https://github.com/user-attachments/assets/6d37afd3-7c64-4c4e-a04e-0a48bc275f28" />
 ![dc5h9go-bd3b3402-35da-4007-bd91-5c3165707530](https://github.com/user-attachments/assets/44034981-586f-4f84-8499-c8dda6090b1a)
 <img width="99" height="56" alt="066_by_kiko_tanaka_dd2gcql-fullview" src="https://github.com/user-attachments/assets/de7d0e34-4ae0-40c1-9ec8-05ac84b82db9" />
 <img width="99" height="56" alt="sonic_r_stamp_by_laprasking_d4e1z6u-fullview" src="https://github.com/user-attachments/assets/99f6ab4b-977e-45ca-8c10-bf58861cee10" />
@@ -89,6 +89,10 @@ also, I'm a multishipper!! I love most sonic pairings, feel free to yap about yo
 ![wave_x_rouge_stamp_by_shizukanamono_dd875bh-fullview](https://github.com/user-attachments/assets/62b75601-f326-4881-bca3-996bbfaded5d)
 ![rouge](https://github.com/user-attachments/assets/62a2c4e9-e20c-46d8-90c3-8f22be217724)
 ![shadow3](https://github.com/user-attachments/assets/7b507ed8-9e69-45fb-8067-cd1662992876)
+<img width="99" height="56" alt="chaotix_stamp_by_artchanxv_dlltcxb-fullview" src="https://github.com/user-attachments/assets/87f27a41-2ec8-4b25-8c7e-4ed4618f802d" />
+![tangle_x_blaze_stamp_by_shizukanamono_ddibien-fullview](https://github.com/user-attachments/assets/d09e4b9d-9dea-490a-8344-01fa1d2fe668)
+![d7kcbhj-f50e9ebe-e21b-438a-90f0-d3c45db26e87](https://github.com/user-attachments/assets/517785ef-ca15-4712-a2a6-86f54285faab)
+<img width="99" height="56" alt="dave_the_intern_stamp_by_the_gitz_d8tvqff-fullview" src="https://github.com/user-attachments/assets/346ade39-e50f-4dd8-a91a-546db1c94817" />
 <img width="99" height="57" alt="silvamy_stamp_by_migueruchan_d7bd3ve-fullview" src="https://github.com/user-attachments/assets/922a6f30-de36-4112-affd-0d245de17487" />
 ![dbegq8w-1595698f-737d-44b4-ac32-3306a85b8717](https://github.com/user-attachments/assets/f8106259-88c8-4c19-9967-2250cc04255b)
 ![d8twhmz-cff9f2e1-98ae-4aeb-9b35-5b411961af84](https://github.com/user-attachments/assets/a320e2f9-6ae3-48eb-8ac9-6427279120fd)
