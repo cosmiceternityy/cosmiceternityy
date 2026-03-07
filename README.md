@@ -46,7 +46,7 @@ also, I'm a multishipper!! I love most sonic pairings, feel free to yap about yo
 ![d102](https://github.com/user-attachments/assets/260447f7-5422-4172-a554-dbe35a1c792f)
 
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
-![dfkc373-4c6ef5b1-f22b-410e-8c22-dd8f4c050700](https://github.com/user-attachments/assets/b3e6b8a2-3d93-48ac-a84c-312fc8921d12)
+<img width="99" height="56" alt="sonic_ova_stamp_002_by_theroseprince_d4jtsqz-fullview" src="https://github.com/user-attachments/assets/fa3622cf-58c3-4110-8411-851166861721" />
 ![diwmrlj-7fd241ff-5064-48fa-9da7-ff01dbc0b554](https://github.com/user-attachments/assets/151d9869-7a94-4596-9586-bca3522c8dbc)
 ![dfkc3ej-454d9f74-f5f5-4b0a-b285-172f55214358](https://github.com/user-attachments/assets/f64aed5e-9c6d-42ad-b9fe-2286434a5357)
 ![dit26hc-d9f5499f-bf2a-45f0-8d97-273be63846af](https://github.com/user-attachments/assets/de5dbd2a-1b15-4b0f-9aaf-2f82ecad828b)
@@ -66,13 +66,13 @@ also, I'm a multishipper!! I love most sonic pairings, feel free to yap about yo
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_1_by_ana_mae_d1ikqr0-fullview" src="https://github.com/user-attachments/assets/33ef3653-6015-4078-81cb-c3e7559e6a60" />
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_3_by_ana_mae_d1o7kf7-fullview" src="https://github.com/user-attachments/assets/e1759a18-ac4f-4740-b8a7-48a3b8b6edb0" />
 ![sonic_the_hedgehog_stamp_by_karmarsi_kedamoki_d2pch7c-fullview](https://github.com/user-attachments/assets/0e4781e2-d32f-4f44-a207-bc5a5412bfd4)
-<img width="99" height="56" alt="sonic_fan_stamp_by_penton_dwhckx-fullview" src="https://github.com/user-attachments/assets/0d4155d2-6d76-4e92-8327-78c616a9c188" />
+![dhx1a53-14f66a19-fe3c-40e9-86ea-60c18c1990b8](https://github.com/user-attachments/assets/d1fd585d-b4f8-4a10-98b7-eaa1c618cd3b)
 ![d6tktqr-2625b653-41bf-4cb2-bd4c-825561ba0582](https://github.com/user-attachments/assets/c99262d9-2618-484d-85ef-65e3f32591a0)
 ![d4o0a8o-327a124c-61bb-4023-a26d-009cea92e2aa](https://github.com/user-attachments/assets/a35423c3-e040-43fd-a08c-1ceb14b44445)
 ![d7mpuvt-2e36d04b-5928-4de4-9228-4540a2ac0d73](https://github.com/user-attachments/assets/798a1aae-7d0d-4780-b5ca-092bc8f30800)
 ![d6pb8dk-1bd1c7c7-c437-4d30-a5db-f12a29727b5b](https://github.com/user-attachments/assets/baddc7b6-74c1-41ca-82db-cbc43c34e98d)
 ![d3bzxir-737d85ac-9383-4fbd-b631-b494c7968a00](https://github.com/user-attachments/assets/5b8096c0-b654-491c-b179-e6461fee9752)
-<img width="99" height="56" alt="i_love_blaze_stamp_by_blazes_stamps_d48vqd0-fullview" src="https://github.com/user-attachments/assets/322a5b71-2149-4418-9da4-6280f40cdf85" />
+<img width="99" height="56" alt="honey_the_cat_stamp_by_reachingrespite_d8gogzg-fullview" src="https://github.com/user-attachments/assets/3114fb96-bebf-413e-9d31-5ad2f1c40004" />
 <img width="99" height="56" alt="sonic_3_and_knuckles_stamp_by_laprasking_d3ke6c5-fullview" src="https://github.com/user-attachments/assets/f5ccfb0f-12a5-476f-b8d8-804bd802eac5" />
 ![sonic_and_knuckles_stamp_by_loveanimeandcartoons_d46hys5-fullview](https://github.com/user-attachments/assets/7a1ef42d-6ab8-4528-a17d-59fad4e7cf32)
 ![d6i9r5m-e3c805d8-1b27-4241-b3eb-b82720305da1](https://github.com/user-attachments/assets/47298cb8-d79e-420c-9fd9-cbaef41614da)
