@@ -2,7 +2,7 @@
 
 hi!! go sign my ata! 
 
-I'm Dorian! I go by she/her mainly but I don't care at all for pronouns ^_^ so please use any you want, even it/its
+I'm Dorian! I'm used to she/her but idrc so please use any, including it/its ^_^
 
 no dni! I hide/mute freely. minors under 15 iwc
 
@@ -12,7 +12,7 @@ my native language is spanish, because of this I make many typos and my grammar 
 
 sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, epic the musical, marvel/dc, etc!
 
-also, I'm a multishipper!! I love most sonic pairings, feel free to yap about your ship with me, specially if it is a rarepair ♡
+also, I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me, specially if it is a rarepair ♡
 
 ![a17](https://github.com/user-attachments/assets/a1760577-c4a5-42dc-a110-6c753862da02)
 ![aroace](https://github.com/user-attachments/assets/eef497fa-3b01-44e7-bb60-bb05bc741c6c)
@@ -91,7 +91,7 @@ also, I'm a multishipper!! I love most sonic pairings, feel free to yap about yo
 ![shadow3](https://github.com/user-attachments/assets/7b507ed8-9e69-45fb-8067-cd1662992876)
 <img width="99" height="56" alt="chaotix_stamp_by_artchanxv_dlltcxb-fullview" src="https://github.com/user-attachments/assets/87f27a41-2ec8-4b25-8c7e-4ed4618f802d" />
 ![tangle_x_blaze_stamp_by_shizukanamono_ddibien-fullview](https://github.com/user-attachments/assets/d09e4b9d-9dea-490a-8344-01fa1d2fe668)
-![d7kcbhj-f50e9ebe-e21b-438a-90f0-d3c45db26e87](https://github.com/user-attachments/assets/517785ef-ca15-4712-a2a6-86f54285faab)
+![d9505cg-1987b8da-2215-4287-a315-03c301b79c05](https://github.com/user-attachments/assets/3751b68e-0a67-4677-9df1-33883f90a234)
 <img width="99" height="56" alt="dave_the_intern_stamp_by_the_gitz_d8tvqff-fullview" src="https://github.com/user-attachments/assets/346ade39-e50f-4dd8-a91a-546db1c94817" />
 <img width="99" height="57" alt="silvamy_stamp_by_migueruchan_d7bd3ve-fullview" src="https://github.com/user-attachments/assets/922a6f30-de36-4112-affd-0d245de17487" />
 ![dbegq8w-1595698f-737d-44b4-ac32-3306a85b8717](https://github.com/user-attachments/assets/f8106259-88c8-4c19-9967-2250cc04255b)
