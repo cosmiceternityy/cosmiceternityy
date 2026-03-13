@@ -85,13 +85,13 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![dc5h9go-bd3b3402-35da-4007-bd91-5c3165707530](https://github.com/user-attachments/assets/44034981-586f-4f84-8499-c8dda6090b1a)
 <img width="99" height="56" alt="066_by_kiko_tanaka_dd2gcql-fullview" src="https://github.com/user-attachments/assets/de7d0e34-4ae0-40c1-9ec8-05ac84b82db9" />
 <img width="99" height="56" alt="sonic_r_stamp_by_laprasking_d4e1z6u-fullview" src="https://github.com/user-attachments/assets/99f6ab4b-977e-45ca-8c10-bf58861cee10" />
-<img width="99" height="56" alt="metal_sonic_stamp_by_rothstein_kaiser_d4xr36f-fullview" src="https://github.com/user-attachments/assets/9fb08035-2dcf-4dcb-bb7d-1563cf1d650f" />
+![d9505cg-1987b8da-2215-4287-a315-03c301b79c05](https://github.com/user-attachments/assets/3751b68e-0a67-4677-9df1-33883f90a234)
 ![wave_x_rouge_stamp_by_shizukanamono_dd875bh-fullview](https://github.com/user-attachments/assets/62b75601-f326-4881-bca3-996bbfaded5d)
 ![rouge](https://github.com/user-attachments/assets/62a2c4e9-e20c-46d8-90c3-8f22be217724)
 ![shadow3](https://github.com/user-attachments/assets/7b507ed8-9e69-45fb-8067-cd1662992876)
 <img width="99" height="56" alt="chaotix_stamp_by_artchanxv_dlltcxb-fullview" src="https://github.com/user-attachments/assets/87f27a41-2ec8-4b25-8c7e-4ed4618f802d" />
 ![tangle_x_blaze_stamp_by_shizukanamono_ddibien-fullview](https://github.com/user-attachments/assets/d09e4b9d-9dea-490a-8344-01fa1d2fe668)
-![d9505cg-1987b8da-2215-4287-a315-03c301b79c05](https://github.com/user-attachments/assets/3751b68e-0a67-4677-9df1-33883f90a234)
+![d7kcbhj-f50e9ebe-e21b-438a-90f0-d3c45db26e87](https://github.com/user-attachments/assets/370e9cf8-9a8e-48a7-99af-08bc330a1dcd)
 <img width="99" height="56" alt="dave_the_intern_stamp_by_the_gitz_d8tvqff-fullview" src="https://github.com/user-attachments/assets/346ade39-e50f-4dd8-a91a-546db1c94817" />
 <img width="99" height="57" alt="silvamy_stamp_by_migueruchan_d7bd3ve-fullview" src="https://github.com/user-attachments/assets/922a6f30-de36-4112-affd-0d245de17487" />
 ![dbegq8w-1595698f-737d-44b4-ac32-3306a85b8717](https://github.com/user-attachments/assets/f8106259-88c8-4c19-9967-2250cc04255b)
