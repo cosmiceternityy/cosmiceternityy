@@ -2,7 +2,7 @@
 
 hi!! go sign my ata! 
 
-I'm Dorian! I'm used to she/her but idrc so please use any, including it/its ^_^
+I'm Dorian! I'm used to she/her but idrc so please use any pronouns for me, including it/its ^_^
 
 no dni! I hide/mute freely. minors under 15 iwc
 
