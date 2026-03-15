@@ -2,7 +2,7 @@
 
 hi!! go sign my ata! 
 
-I'm Dorian! I'm used to she/her but idrc so please use any pronouns for me, including it/its ^_^
+I'm Dorian! I go by any pronouns, including it/its ^_^
 
 no dni! I hide/mute freely. minors under 15 iwc
 
@@ -65,7 +65,7 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 <img width="99" height="57" alt="d7nuktq-51b5ba5b-a67c-49bb-b265-df9a3ed973c0" src="https://github.com/user-attachments/assets/ce732cb1-1e87-452c-ae56-8c31dd422711" />
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_1_by_ana_mae_d1ikqr0-fullview" src="https://github.com/user-attachments/assets/33ef3653-6015-4078-81cb-c3e7559e6a60" />
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_3_by_ana_mae_d1o7kf7-fullview" src="https://github.com/user-attachments/assets/e1759a18-ac4f-4740-b8a7-48a3b8b6edb0" />
-![sonic_the_hedgehog_stamp_by_karmarsi_kedamoki_d2pch7c-fullview](https://github.com/user-attachments/assets/0e4781e2-d32f-4f44-a207-bc5a5412bfd4)
+
 ![dhx1a53-14f66a19-fe3c-40e9-86ea-60c18c1990b8](https://github.com/user-attachments/assets/d1fd585d-b4f8-4a10-98b7-eaa1c618cd3b)
 ![d6tktqr-2625b653-41bf-4cb2-bd4c-825561ba0582](https://github.com/user-attachments/assets/c99262d9-2618-484d-85ef-65e3f32591a0)
 ![d4o0a8o-327a124c-61bb-4023-a26d-009cea92e2aa](https://github.com/user-attachments/assets/a35423c3-e040-43fd-a08c-1ceb14b44445)
@@ -98,4 +98,4 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![d8twhmz-cff9f2e1-98ae-4aeb-9b35-5b411961af84](https://github.com/user-attachments/assets/a320e2f9-6ae3-48eb-8ac9-6427279120fd)
 <img width="99" height="56" alt="_010__mania_sonic_stamp_by_rukia_stamps_daio6a4-fullview" src="https://github.com/user-attachments/assets/30ea753f-bce7-460f-ac8b-0e7078b707e2" />
 
-I don't mind taking inspo from my skins but please [don't copy me](https://i.imgur.com/oA1o5Be.png)
+please [don't copy my skins](https://i.imgur.com/oA1o5Be.png)
