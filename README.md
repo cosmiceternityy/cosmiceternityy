@@ -44,7 +44,8 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![e118](https://github.com/user-attachments/assets/c1b7fea0-df76-447c-ab47-977591d6f6c8)
 ![e102](https://github.com/user-attachments/assets/7c7194d9-ee0d-4541-9d8b-8ff4d2944120)
 ![d102](https://github.com/user-attachments/assets/260447f7-5422-4172-a554-dbe35a1c792f)
-<img width="99" height="56" alt="699_by_reykholtz_dcumrpk-fullview" src="https://github.com/user-attachments/assets/4ce5c4a9-978a-4e4a-ae23-9598ecd4e6e9" />
+
+
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
 <img width="99" height="56" alt="sonic_ova_stamp_002_by_theroseprince_d4jtsqz-fullview" src="https://github.com/user-attachments/assets/fa3622cf-58c3-4110-8411-851166861721" />
 ![diwmrlj-7fd241ff-5064-48fa-9da7-ff01dbc0b554](https://github.com/user-attachments/assets/151d9869-7a94-4596-9586-bca3522c8dbc)
@@ -60,77 +61,42 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![dajqpvu-9296896c-74ce-46ff-9eb2-78647f594931](https://github.com/user-attachments/assets/f598e7de-f607-4e0e-b0bd-2cc2a0ef54f5)
 <img width="99" height="56" alt="812_by_reykholtz_dd3da4c-fullview" src="https://github.com/user-attachments/assets/b9e817f4-0a26-4073-90c1-cc350d389d88" />
 <img width="99" height="55" alt="rlea" src="https://github.com/user-attachments/assets/630d9ff0-40f3-4c33-b08f-25504e8f1bd3" />
-
+<img width="99" height="56" alt="699_by_reykholtz_dcumrpk-fullview" src="https://github.com/user-attachments/assets/4ce5c4a9-978a-4e4a-ae23-9598ecd4e6e9" />
 <img width="99" height="56" alt="217_by_kiko_tanaka_ddj5jqc-fullview" src="https://github.com/user-attachments/assets/5d2f83c7-090e-4cf7-83be-e05e128fe95d" />
-
 <img width="99" height="57" alt="d7nuktq-51b5ba5b-a67c-49bb-b265-df9a3ed973c0" src="https://github.com/user-attachments/assets/ce732cb1-1e87-452c-ae56-8c31dd422711" />
-
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_1_by_ana_mae_d1ikqr0-fullview" src="https://github.com/user-attachments/assets/33ef3653-6015-4078-81cb-c3e7559e6a60" />
-
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_3_by_ana_mae_d1o7kf7-fullview" src="https://github.com/user-attachments/assets/e1759a18-ac4f-4740-b8a7-48a3b8b6edb0" />
-
 ![dbtqpbx-a810039a-62b2-4df0-b92b-c5a5c957e6ab](https://github.com/user-attachments/assets/0a87e364-0286-44b8-8c05-2fd6dc6a3d4d)
-
 ![dhx1a53-14f66a19-fe3c-40e9-86ea-60c18c1990b8](https://github.com/user-attachments/assets/d1fd585d-b4f8-4a10-98b7-eaa1c618cd3b)
-
 ![d6tktqr-2625b653-41bf-4cb2-bd4c-825561ba0582](https://github.com/user-attachments/assets/c99262d9-2618-484d-85ef-65e3f32591a0)
-
 ![d4o0a8o-327a124c-61bb-4023-a26d-009cea92e2aa](https://github.com/user-attachments/assets/a35423c3-e040-43fd-a08c-1ceb14b44445)
-
 ![d7mpuvt-2e36d04b-5928-4de4-9228-4540a2ac0d73](https://github.com/user-attachments/assets/798a1aae-7d0d-4780-b5ca-092bc8f30800)
-
 ![d6pb8dk-1bd1c7c7-c437-4d30-a5db-f12a29727b5b](https://github.com/user-attachments/assets/baddc7b6-74c1-41ca-82db-cbc43c34e98d)
-
 ![d3bzxir-737d85ac-9383-4fbd-b631-b494c7968a00](https://github.com/user-attachments/assets/5b8096c0-b654-491c-b179-e6461fee9752)
-
 <img width="99" height="56" alt="honey_the_cat_stamp_by_reachingrespite_d8gogzg-fullview" src="https://github.com/user-attachments/assets/3114fb96-bebf-413e-9d31-5ad2f1c40004" />
-
 <img width="99" height="56" alt="sonic_3_and_knuckles_stamp_by_laprasking_d3ke6c5-fullview" src="https://github.com/user-attachments/assets/f5ccfb0f-12a5-476f-b8d8-804bd802eac5" />
-
 ![sonic_and_knuckles_stamp_by_loveanimeandcartoons_d46hys5-fullview](https://github.com/user-attachments/assets/7a1ef42d-6ab8-4528-a17d-59fad4e7cf32)
-
 ![d6i9r5m-e3c805d8-1b27-4241-b3eb-b82720305da1](https://github.com/user-attachments/assets/47298cb8-d79e-420c-9fd9-cbaef41614da)
-
 ![d7gcshb-d5ddfe92-ff5e-4755-90ae-ed46c647acb5](https://github.com/user-attachments/assets/43d1a0ff-976e-497b-9f67-d5799a088b94)
-
 ![d7uu1yr-add2128a-78e0-40a1-a3ec-9aa89f35c9b1](https://github.com/user-attachments/assets/fe57c561-a902-4455-ac32-e06069183f2b)
-
 ![d4mwpam-2840f9fd-d2ce-4835-9223-9afd0f9120c9](https://github.com/user-attachments/assets/e9f7b83f-d613-4d11-8428-673cecfb9de2)
-
 ![dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920](https://github.com/user-attachments/assets/9b671081-cca7-43b6-828c-411e7d5d33e9)
-
 ![manic_stamp_by_fortunadraken_d1g8fmh-fullview](https://github.com/user-attachments/assets/05e14cb9-e9b0-43bd-9cf8-2826bb8b5fcc)
-
 <img width="99" height="56" alt="mighty_and_ray_stamp_by_jc_the_penguin_d5rus8p-fullview" src="https://github.com/user-attachments/assets/6d37afd3-7c64-4c4e-a04e-0a48bc275f28" />
-
 ![dc5h9go-bd3b3402-35da-4007-bd91-5c3165707530](https://github.com/user-attachments/assets/44034981-586f-4f84-8499-c8dda6090b1a)
-
 <img width="99" height="56" alt="066_by_kiko_tanaka_dd2gcql-fullview" src="https://github.com/user-attachments/assets/de7d0e34-4ae0-40c1-9ec8-05ac84b82db9" />
-
 <img width="99" height="56" alt="sonic_r_stamp_by_laprasking_d4e1z6u-fullview" src="https://github.com/user-attachments/assets/99f6ab4b-977e-45ca-8c10-bf58861cee10" />
-
 ![d9505cg-1987b8da-2215-4287-a315-03c301b79c05](https://github.com/user-attachments/assets/3751b68e-0a67-4677-9df1-33883f90a234)
-
 <img width="99" height="56" alt="751_by_reykholtz_dcvkwac-fullview" src="https://github.com/user-attachments/assets/3c3929f7-f751-4a11-9947-58ad8b68a1aa" />
-
 ![rouge](https://github.com/user-attachments/assets/62a2c4e9-e20c-46d8-90c3-8f22be217724)
-
 ![shadow3](https://github.com/user-attachments/assets/7b507ed8-9e69-45fb-8067-cd1662992876)
-
 <img width="99" height="56" alt="chaotix_stamp_by_artchanxv_dlltcxb-fullview" src="https://github.com/user-attachments/assets/87f27a41-2ec8-4b25-8c7e-4ed4618f802d" />
-
 ![tangle_x_blaze_stamp_by_shizukanamono_ddibien-fullview](https://github.com/user-attachments/assets/d09e4b9d-9dea-490a-8344-01fa1d2fe668)
-
 ![d7kcbhj-f50e9ebe-e21b-438a-90f0-d3c45db26e87](https://github.com/user-attachments/assets/370e9cf8-9a8e-48a7-99af-08bc330a1dcd)
-
 <img width="99" height="56" alt="dave_the_intern_stamp_by_the_gitz_d8tvqff-fullview" src="https://github.com/user-attachments/assets/346ade39-e50f-4dd8-a91a-546db1c94817" />
-
 <img width="99" height="57" alt="silvamy_stamp_by_migueruchan_d7bd3ve-fullview" src="https://github.com/user-attachments/assets/922a6f30-de36-4112-affd-0d245de17487" />
-
 ![dbegq8w-1595698f-737d-44b4-ac32-3306a85b8717](https://github.com/user-attachments/assets/f8106259-88c8-4c19-9967-2250cc04255b)
-
 ![d8twhmz-cff9f2e1-98ae-4aeb-9b35-5b411961af84](https://github.com/user-attachments/assets/a320e2f9-6ae3-48eb-8ac9-6427279120fd)
-
 <img width="99" height="56" alt="_010__mania_sonic_stamp_by_rukia_stamps_daio6a4-fullview" src="https://github.com/user-attachments/assets/30ea753f-bce7-460f-ac8b-0e7078b707e2" />
 
 please [don't copy my skins](https://i.imgur.com/oA1o5Be.png)
