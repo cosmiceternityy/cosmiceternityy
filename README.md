@@ -44,7 +44,7 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![e118](https://github.com/user-attachments/assets/c1b7fea0-df76-447c-ab47-977591d6f6c8)
 ![e102](https://github.com/user-attachments/assets/7c7194d9-ee0d-4541-9d8b-8ff4d2944120)
 ![d102](https://github.com/user-attachments/assets/260447f7-5422-4172-a554-dbe35a1c792f)
-
+<img width="99" height="56" alt="699_by_reykholtz_dcumrpk-fullview" src="https://github.com/user-attachments/assets/4ce5c4a9-978a-4e4a-ae23-9598ecd4e6e9" />
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
 <img width="99" height="56" alt="sonic_ova_stamp_002_by_theroseprince_d4jtsqz-fullview" src="https://github.com/user-attachments/assets/fa3622cf-58c3-4110-8411-851166861721" />
 ![diwmrlj-7fd241ff-5064-48fa-9da7-ff01dbc0b554](https://github.com/user-attachments/assets/151d9869-7a94-4596-9586-bca3522c8dbc)
@@ -58,9 +58,9 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![d7wv1fa-2610f52b-d1f9-41cb-abd3-02e8bf8f6256](https://github.com/user-attachments/assets/0d2dea16-c444-4cab-b8e3-54901b998d81)
 ![d9f5d1k-7a564ccb-7451-40f5-9f75-73e6637ccb2b](https://github.com/user-attachments/assets/931ed7ea-5ca2-405f-b6c2-5bb013497c74)
 ![dajqpvu-9296896c-74ce-46ff-9eb2-78647f594931](https://github.com/user-attachments/assets/f598e7de-f607-4e0e-b0bd-2cc2a0ef54f5)
-![sticks_x_amy_stamp_by_shizukanamono_dd7i21j-fullview](https://github.com/user-attachments/assets/00bc14d6-ccf6-4eaf-bffb-9b312b780635)
+<img width="99" height="56" alt="812_by_reykholtz_dd3da4c-fullview" src="https://github.com/user-attachments/assets/b9e817f4-0a26-4073-90c1-cc350d389d88" />
 <img width="99" height="55" alt="rlea" src="https://github.com/user-attachments/assets/630d9ff0-40f3-4c33-b08f-25504e8f1bd3" />
-![knuxadow_stamp_by_shizukanamono_dda2g4y-fullview](https://github.com/user-attachments/assets/b2416ac4-21ea-427b-92a1-48f905d0dce9)
+
 <img width="99" height="56" alt="217_by_kiko_tanaka_ddj5jqc-fullview" src="https://github.com/user-attachments/assets/5d2f83c7-090e-4cf7-83be-e05e128fe95d" />
 <img width="99" height="57" alt="d7nuktq-51b5ba5b-a67c-49bb-b265-df9a3ed973c0" src="https://github.com/user-attachments/assets/ce732cb1-1e87-452c-ae56-8c31dd422711" />
 <img width="99" height="56" alt="sonic_adventure_fan_stamp_1_by_ana_mae_d1ikqr0-fullview" src="https://github.com/user-attachments/assets/33ef3653-6015-4078-81cb-c3e7559e6a60" />
@@ -86,7 +86,7 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 <img width="99" height="56" alt="066_by_kiko_tanaka_dd2gcql-fullview" src="https://github.com/user-attachments/assets/de7d0e34-4ae0-40c1-9ec8-05ac84b82db9" />
 <img width="99" height="56" alt="sonic_r_stamp_by_laprasking_d4e1z6u-fullview" src="https://github.com/user-attachments/assets/99f6ab4b-977e-45ca-8c10-bf58861cee10" />
 ![d9505cg-1987b8da-2215-4287-a315-03c301b79c05](https://github.com/user-attachments/assets/3751b68e-0a67-4677-9df1-33883f90a234)
-![wave_x_rouge_stamp_by_shizukanamono_dd875bh-fullview](https://github.com/user-attachments/assets/62b75601-f326-4881-bca3-996bbfaded5d)
+<img width="99" height="56" alt="751_by_reykholtz_dcvkwac-fullview" src="https://github.com/user-attachments/assets/3c3929f7-f751-4a11-9947-58ad8b68a1aa" />
 ![rouge](https://github.com/user-attachments/assets/62a2c4e9-e20c-46d8-90c3-8f22be217724)
 ![shadow3](https://github.com/user-attachments/assets/7b507ed8-9e69-45fb-8067-cd1662992876)
 <img width="99" height="56" alt="chaotix_stamp_by_artchanxv_dlltcxb-fullview" src="https://github.com/user-attachments/assets/87f27a41-2ec8-4b25-8c7e-4ed4618f802d" />
