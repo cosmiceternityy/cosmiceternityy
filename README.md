@@ -12,7 +12,7 @@ my native language is spanish, because of this I make many typos and my grammar 
 
 sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, epic the musical, marvel/dc, etc!
 
-also, I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me, specially if it is a rarepair ♡
+also, I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me anytime ♡
 
 ![a17](https://github.com/user-attachments/assets/a1760577-c4a5-42dc-a110-6c753862da02)
 ![aroace](https://github.com/user-attachments/assets/eef497fa-3b01-44e7-bb60-bb05bc741c6c)
@@ -38,12 +38,12 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![4f3ffb87](https://github.com/user-attachments/assets/f2ebc8ec-0fb6-4f65-b6f2-bfda4cc62c55)
 ![6b4c2c7c](https://github.com/user-attachments/assets/e57a8c62-ade3-4222-8695-2f98e5ba58de)
 ![b464ba9c](https://github.com/user-attachments/assets/e18c063f-6901-49d4-94dd-65530d5786a0)
-![c6790e4d](https://github.com/user-attachments/assets/3a11d3a3-700d-486a-866b-9a7485772b5c)
-![79e57143](https://github.com/user-attachments/assets/6e2711d1-bf85-4e0d-b952-2bed3e6f4084)
+![shadow](https://github.com/user-attachments/assets/b5057a8f-d95d-4114-ab42-7149b8c743e8)
+![sonic](https://github.com/user-attachments/assets/2cc72e09-a7a2-4d32-9027-d82d58c21e8a)
 ![f647f873](https://github.com/user-attachments/assets/02e72f73-3f20-4079-8541-2c87f66768c2)
 ![e118](https://github.com/user-attachments/assets/c1b7fea0-df76-447c-ab47-977591d6f6c8)
 ![e102](https://github.com/user-attachments/assets/7c7194d9-ee0d-4541-9d8b-8ff4d2944120)
-![d102](https://github.com/user-attachments/assets/260447f7-5422-4172-a554-dbe35a1c792f)
+![sonicblink](https://github.com/user-attachments/assets/df357906-c234-4baa-9a0e-0130f093d9f6)
 
 
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
