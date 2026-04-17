@@ -2,15 +2,15 @@
 
 hi!! go sign my ata! 
 
-I'm Dorian! I go by any pronouns, including it/its ^_^
+I'm Dorian! I go by any pronouns, it/its slightly preferred ^_^
 
 no dni! I hide/mute freely. minors under 15 iwc
 
 I'm afk/offtab a LOT, I prefer if you whisper to interact - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens. I struggle socially! I hardly approach/interact with anyone outside of my friend group and I'm always anxious of bothering, so I would REALLY appreciate if you interact first
 
-my native language is spanish, because of this I make many typos and my grammar is off sometimes
+my native language is spanish, I may make many typos and have off grammar sometimes
 
-sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, epic the musical, marvel/dc, etc!
+sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, musicals (stakid hatchetfield trilogy and etm are my favs rn), marvel/dc (more of a casual fan), etc!
 
 also, I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me anytime ♡
 
