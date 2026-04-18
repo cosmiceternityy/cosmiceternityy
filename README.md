@@ -4,9 +4,9 @@ hi!! go sign my ata!
 
 I'm Dorian! I go by any pronouns, it/its slightly preferred ^_^
 
-I hide/mute freely. minors iwc (and dni in 18+ server)
-
 I'm afk/offtab a LOT, I prefer if you whisper to interact - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens. I struggle socially! I hardly approach/interact with anyone outside of my friend group and I'm always anxious of bothering, so I would REALLY appreciate if you interact first
+
+I hide/mute freely. minors iwc
 
 my native language is spanish, I may make many typos and have off grammar sometimes
 
