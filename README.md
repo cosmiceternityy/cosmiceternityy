@@ -10,7 +10,7 @@ I hide/mute freely. minors iwc
 
 my native language is spanish, I may make many typos and have off grammar sometimes
 
-sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, musicals (stakid hatchetfield trilogy and etm are my favs rn), marvel/dc (more of a casual fan), etc!
+sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, musicals (starkid hatchetfield series and etm are my favs rn), marvel/dc (more of a casual fan), etc!
 
 also, I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me anytime ♡
 
@@ -44,6 +44,8 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![4f3ffb87](https://github.com/user-attachments/assets/f2ebc8ec-0fb6-4f65-b6f2-bfda4cc62c55)
 ![shadow](https://github.com/user-attachments/assets/b5057a8f-d95d-4114-ab42-7149b8c743e8)
 ![sonic](https://github.com/user-attachments/assets/2cc72e09-a7a2-4d32-9027-d82d58c21e8a)
+
+ik the stamps are all out of place, I'll fix it later..
 
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
 <img width="99" height="56" alt="sonic_ova_stamp_002_by_theroseprince_d4jtsqz-fullview" src="https://github.com/user-attachments/assets/fa3622cf-58c3-4110-8411-851166861721" />
