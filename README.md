@@ -27,9 +27,13 @@ sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin 
 <img width="150" height="20" alt="a89744cc" src="https://github.com/user-attachments/assets/06e760ef-3682-4b5c-a907-1cfdb7e1f195" />
 <img width="150" height="20" alt="c910632d" src="https://github.com/user-attachments/assets/33c29a65-2ba8-45e2-a885-b7e5f372294c" />
 
+
+
+
 <img width="100" height="56" alt="dg7hsko-e0de36fa-21ad-481c-a3f7-dea405f29468" src="https://github.com/user-attachments/assets/db1f52b0-54ac-403c-b273-bf078499d661" />
 <img width="99" height="56" alt="dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920" src="https://github.com/user-attachments/assets/e88539e9-b927-4e8a-91aa-d870991e36f0" />
 <img width="100" height="56" alt="d8z8lzi-4a6ae174-e79b-4a97-8385-004ebc9cb393" src="https://github.com/user-attachments/assets/54fe92a8-b2e3-4391-95e6-9672f81ab11b" />
+
 
 
 please [don't copy my skins](https://i.imgur.com/oA1o5Be.png)
