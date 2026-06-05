@@ -20,9 +20,11 @@ sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin 
 <img width="150" height="20" alt="g124" src="https://github.com/user-attachments/assets/2cfd8881-dd2c-4fb7-bb2d-fe0f2e3487ee" />
 <img width="150" height="20" alt="c39" src="https://github.com/user-attachments/assets/c58992ff-d05b-4510-926a-4d6a4908ec87" />
 <img width="150" height="20" alt="a52" src="https://github.com/user-attachments/assets/461afe23-41ad-4785-b05a-b4f29b5da382" />
+<img width="150" height="20" alt="a82" src="https://github.com/user-attachments/assets/f66b64e5-8e15-4d08-8558-5f42a31acacf" />
+<img width="150" height="20" alt="v6" src="https://github.com/user-attachments/assets/ce7eef5c-0049-4da9-86bd-f2b53556f957" />
 <img width="150" height="20" alt="124c56af" src="https://github.com/user-attachments/assets/3f2c4487-e0fe-429d-b880-ea5a3c900d16" />
 <img width="150" height="20" alt="b24" src="https://github.com/user-attachments/assets/2b83c774-35ea-412c-be97-faabd1a0d67b" />
 <img width="150" height="20" alt="c910632d" src="https://github.com/user-attachments/assets/33c29a65-2ba8-45e2-a885-b7e5f372294c" />
-<img width="150" height="20" alt="v6" src="https://github.com/user-attachments/assets/ce7eef5c-0049-4da9-86bd-f2b53556f957" />
+<img width="150" height="20" alt="a89744cc" src="https://github.com/user-attachments/assets/06e760ef-3682-4b5c-a907-1cfdb7e1f195" />
 
 please [don't copy my skins](https://i.imgur.com/oA1o5Be.png)
