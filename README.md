@@ -2,17 +2,11 @@
 
 hi!! go sign my ata! 
 
-I'm Dorian! I go by any pronouns, it/its slightly preferred ^_^
-
-I'm afk/offtab a LOT, I prefer if you whisper to interact - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens. I struggle socially! I hardly approach/interact with anyone outside of my friend group and I'm always anxious of bothering, so I would REALLY appreciate if you interact first
+I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can eventually see it - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens ^-^ I struggle socially, I apoligize if I come off as awkward or dry at first
 
 I hide/mute freely. minors iwc
 
-my native language is spanish, I may make many typos and have off grammar sometimes
-
-sonic is my main fandom and interest ♡ you'll rarely see me using a sonic skin outside of sonic area though. Some of my other fandoms are atla, harry potter, musicals (starkid hatchetfield series and etm are my favs rn), marvel/dc (more of a casual fan), etc!
-
-also, I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me anytime ♡
+sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin outside of sonic area though. also I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me anytime!
 
 ![a17](https://github.com/user-attachments/assets/a1760577-c4a5-42dc-a110-6c753862da02)
 ![aroace](https://github.com/user-attachments/assets/eef497fa-3b01-44e7-bb60-bb05bc741c6c)
@@ -22,6 +16,8 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![v40](https://github.com/user-attachments/assets/cd538a86-f510-4c91-a1a5-83971ff53460)
 ![v55](https://github.com/user-attachments/assets/a274752b-a557-4ed2-8491-afff99e80045)
 ![g124](https://github.com/user-attachments/assets/5ff5d9e2-ded4-4b53-b636-1d26f54152fb)
+<img width="150" height="20" alt="awooo" src="https://github.com/user-attachments/assets/2658645a-61b9-4fb5-a6db-6d1e10ffbd2c" />
+<img width="150" height="20" alt="loser and proud" src="https://github.com/user-attachments/assets/6e39c876-9acc-49a6-af1c-55846fd1906d" />
 ![01c2aeba](https://github.com/user-attachments/assets/18060ca7-931e-4006-8a6a-47f18ea36490)
 ![c910632d](https://github.com/user-attachments/assets/8694ea2d-c8b6-4d8f-8403-7c66dfa9b4c3)
 ![e31](https://github.com/user-attachments/assets/6b1d9dca-38ed-4124-be0e-7f48b08c5cb2)
@@ -42,10 +38,6 @@ also, I'm a big multishipper!! I love most sonic pairings, feel free to yap abou
 ![e118](https://github.com/user-attachments/assets/c1b7fea0-df76-447c-ab47-977591d6f6c8)
 ![e102](https://github.com/user-attachments/assets/7c7194d9-ee0d-4541-9d8b-8ff4d2944120)
 ![4f3ffb87](https://github.com/user-attachments/assets/f2ebc8ec-0fb6-4f65-b6f2-bfda4cc62c55)
-![shadow](https://github.com/user-attachments/assets/b5057a8f-d95d-4114-ab42-7149b8c743e8)
-![sonic](https://github.com/user-attachments/assets/2cc72e09-a7a2-4d32-9027-d82d58c21e8a)
-
-ik the stamps are all out of place, I'll fix it later..
 
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
 <img width="99" height="56" alt="sonic_ova_stamp_002_by_theroseprince_d4jtsqz-fullview" src="https://github.com/user-attachments/assets/fa3622cf-58c3-4110-8411-851166861721" />
