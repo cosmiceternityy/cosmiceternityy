@@ -2,7 +2,7 @@
 
 <img width="100" height="100" alt="1492051f4264rejhj" src="https://github.com/user-attachments/assets/7d587574-8479-4c16-9500-d6b10b848ccc" /> <--- this is me btw
 
-hi!! go sign my ata! <img width="20" height="17" alt="185043e69epj9t4g" src="https://github.com/user-attachments/assets/7b30c16c-b2f6-4897-aa0b-aa7b8e579723" />
+hi!! go sign my ata!
 
 I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can eventually see it - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens ^-^ I struggle socially, I apoligize if I come off as awkward or dry at first
 
@@ -27,13 +27,9 @@ sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin 
 <img width="150" height="20" alt="a89744cc" src="https://github.com/user-attachments/assets/06e760ef-3682-4b5c-a907-1cfdb7e1f195" />
 <img width="150" height="20" alt="c910632d" src="https://github.com/user-attachments/assets/33c29a65-2ba8-45e2-a885-b7e5f372294c" />
 
-
-<img width="117" height="88" alt="185029sx2rdsiuh5" src="https://github.com/user-attachments/assets/e90bdb2d-c415-47af-93d3-6a1c1a67c82c" />
-
-
-
 <img width="100" height="56" alt="dg7hsko-e0de36fa-21ad-481c-a3f7-dea405f29468" src="https://github.com/user-attachments/assets/db1f52b0-54ac-403c-b273-bf078499d661" />
 <img width="99" height="56" alt="dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920" src="https://github.com/user-attachments/assets/e88539e9-b927-4e8a-91aa-d870991e36f0" />
 <img width="100" height="56" alt="d8z8lzi-4a6ae174-e79b-4a97-8385-004ebc9cb393" src="https://github.com/user-attachments/assets/54fe92a8-b2e3-4391-95e6-9672f81ab11b" />
 
-please [don't copy my skins](https://i.imgur.com/oA1o5Be.png) <img width="20" height="13" alt="319848a1jex085x7" src="https://github.com/user-attachments/assets/2dcdd062-89de-41e8-b478-8f25251dbeb5" />
+
+please [don't copy my skins](https://i.imgur.com/oA1o5Be.png)
