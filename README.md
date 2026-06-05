@@ -8,7 +8,7 @@ I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can 
 
 I hide/mute freely. minors iwc
 
-sonic is my main interest! I'm a big multishipper too!! feel free to yap about your ships with me anytime please <3
+sonic is my main interest! I'm a big multishipper too!! yap about your sonic ships with me anytime please <3
 
 <img width="100" height="56" alt="dg7hsko-e0de36fa-21ad-481c-a3f7-dea405f29468" src="https://github.com/user-attachments/assets/db1f52b0-54ac-403c-b273-bf078499d661" />
 <img width="99" height="56" alt="dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920" src="https://github.com/user-attachments/assets/e88539e9-b927-4e8a-91aa-d870991e36f0" />
