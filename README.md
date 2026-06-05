@@ -2,7 +2,7 @@
 
 <img width="100" height="100" alt="1492051f4264rejhj" src="https://github.com/user-attachments/assets/7d587574-8479-4c16-9500-d6b10b848ccc" /> <--- this is me btw
 
-hi!! go sign my ata! <img width="43" height="45" alt="1416552cy7o5ozltk" src="https://github.com/user-attachments/assets/b7bc3e84-360a-4abe-b725-dc06d48e0089" />
+hi!! go sign my ata!
 
 I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can eventually see it - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens ^-^ I struggle socially, I apoligize if I come off as awkward or dry at first
 
@@ -18,12 +18,14 @@ sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin 
 ![v40](https://github.com/user-attachments/assets/cd538a86-f510-4c91-a1a5-83971ff53460)
 ![v55](https://github.com/user-attachments/assets/a274752b-a557-4ed2-8491-afff99e80045)
 ![g124](https://github.com/user-attachments/assets/5ff5d9e2-ded4-4b53-b636-1d26f54152fb)
-<img width="150" height="20" alt="loser and proud" src="https://github.com/user-attachments/assets/6e39c876-9acc-49a6-af1c-55846fd1906d" />
+<img width="150" height="20" alt="x22" src="https://github.com/user-attachments/assets/2bdc81f3-0f85-4719-801a-8d0b2e19bb5a" />
+<img width="150" height="20" alt="b48" src="https://github.com/user-attachments/assets/1200cc78-f696-45a9-ac31-6e6d492ffecd" />
+<img width="150" height="20" alt="e77" src="https://github.com/user-attachments/assets/9e5c3c24-64aa-4b46-b24a-0d02c95d1032" />
 <img width="150" height="20" alt="awooo" src="https://github.com/user-attachments/assets/2658645a-61b9-4fb5-a6db-6d1e10ffbd2c" />
 ![01c2aeba](https://github.com/user-attachments/assets/18060ca7-931e-4006-8a6a-47f18ea36490)
-![c910632d](https://github.com/user-attachments/assets/8694ea2d-c8b6-4d8f-8403-7c66dfa9b4c3)
 ![e31](https://github.com/user-attachments/assets/6b1d9dca-38ed-4124-be0e-7f48b08c5cb2)
-![c0a0313d](https://github.com/user-attachments/assets/b73db1e5-efc5-4533-b5e9-42d135a73755)
+![c910632d](https://github.com/user-attachments/assets/8694ea2d-c8b6-4d8f-8403-7c66dfa9b4c3)
+<img width="150" height="20" alt="b24" src="https://github.com/user-attachments/assets/ca1c02e8-5f5f-4eb5-835d-5586a562c959" />
 ![a89744cc](https://github.com/user-attachments/assets/7e7a5268-cc88-43bf-92aa-c416469a7af4)
 ![042015a2](https://github.com/user-attachments/assets/60a498c2-148d-409a-b969-13804af433f4)
 ![47c040c9](https://github.com/user-attachments/assets/25a0d057-a011-4d99-9da7-86ed2c3c749f)
@@ -38,7 +40,7 @@ sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin 
 ![b464ba9c](https://github.com/user-attachments/assets/e18c063f-6901-49d4-94dd-65530d5786a0)
 ![f647f873](https://github.com/user-attachments/assets/02e72f73-3f20-4079-8541-2c87f66768c2)
 ![e118](https://github.com/user-attachments/assets/c1b7fea0-df76-447c-ab47-977591d6f6c8)
-![e102](https://github.com/user-attachments/assets/7c7194d9-ee0d-4541-9d8b-8ff4d2944120)
+
 ![4f3ffb87](https://github.com/user-attachments/assets/f2ebc8ec-0fb6-4f65-b6f2-bfda4cc62c55)
 
 ![d7vvdxg-b2c449cd-8847-4dd2-8a25-ec4d1451f512](https://github.com/user-attachments/assets/d8db9411-44f3-4cca-9609-a1370fbc3ac2)
