@@ -1,12 +1,14 @@
 ![](https://komarev.com/ghpvc/?username=cosmiceternityy&color=003D61&style=plastic&label=soniclings)
 
-hi!! go sign my ata! 
+<img width="100" height="100" alt="1492051f4264rejhj" src="https://github.com/user-attachments/assets/7d587574-8479-4c16-9500-d6b10b848ccc" /> <--- this is me btw
+
+hi!! go sign my ata! <img width="43" height="45" alt="1416552cy7o5ozltk" src="https://github.com/user-attachments/assets/b7bc3e84-360a-4abe-b725-dc06d48e0089" />
 
 I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can eventually see it - feel free to c+h, int, boop, kiss and cover me anytime! sometimes being fully covered makes me uncomfy, I will tell you or move if this happens ^-^ I struggle socially, I apoligize if I come off as awkward or dry at first
 
 I hide/mute freely. minors iwc
 
-sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin outside of sonic area though. also I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ship with me anytime!
+sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin outside of sonic area though. also I'm a big multishipper!! I love most sonic pairings, feel free to yap about your ships with me anytime!
 
 ![a17](https://github.com/user-attachments/assets/a1760577-c4a5-42dc-a110-6c753862da02)
 ![aroace](https://github.com/user-attachments/assets/eef497fa-3b01-44e7-bb60-bb05bc741c6c)
@@ -16,8 +18,8 @@ sonic is my main fandom and interest <3 you'll rarely see me using a sonic skin 
 ![v40](https://github.com/user-attachments/assets/cd538a86-f510-4c91-a1a5-83971ff53460)
 ![v55](https://github.com/user-attachments/assets/a274752b-a557-4ed2-8491-afff99e80045)
 ![g124](https://github.com/user-attachments/assets/5ff5d9e2-ded4-4b53-b636-1d26f54152fb)
-<img width="150" height="20" alt="awooo" src="https://github.com/user-attachments/assets/2658645a-61b9-4fb5-a6db-6d1e10ffbd2c" />
 <img width="150" height="20" alt="loser and proud" src="https://github.com/user-attachments/assets/6e39c876-9acc-49a6-af1c-55846fd1906d" />
+<img width="150" height="20" alt="awooo" src="https://github.com/user-attachments/assets/2658645a-61b9-4fb5-a6db-6d1e10ffbd2c" />
 ![01c2aeba](https://github.com/user-attachments/assets/18060ca7-931e-4006-8a6a-47f18ea36490)
 ![c910632d](https://github.com/user-attachments/assets/8694ea2d-c8b6-4d8f-8403-7c66dfa9b4c3)
 ![e31](https://github.com/user-attachments/assets/6b1d9dca-38ed-4124-be0e-7f48b08c5cb2)
