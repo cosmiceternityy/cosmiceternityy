@@ -4,7 +4,7 @@
 
 hi!! go sign my ata!
 
-I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can eventually see it - feel free to c+h, int, boop and kiss me anytime! I struggle socially, so I apoligize if I come off as awkward or dry at first. I do my best!
+I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can eventually see it - feel free to c+h, int, boop or kiss me anytime! I struggle socially, so I apoligize if I come off as awkward or dry at first. I do my best!
 
 <img width="100" height="56" alt="dg7hsko-e0de36fa-21ad-481c-a3f7-dea405f29468" src="https://github.com/user-attachments/assets/db1f52b0-54ac-403c-b273-bf078499d661" />
 <img width="99" height="56" alt="dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920" src="https://github.com/user-attachments/assets/e88539e9-b927-4e8a-91aa-d870991e36f0" />
