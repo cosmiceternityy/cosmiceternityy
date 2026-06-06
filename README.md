@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=cosmiceternityy&color=003D61&style=plastic&label=soniclings)
 
-<img width="90" height="90" alt="1492051f4264rejhj" src="https://github.com/user-attachments/assets/7d587574-8479-4c16-9500-d6b10b848ccc" /> <--- this is me btw
+<img width="80" height="80" alt="1492051f4264rejhj" src="https://github.com/user-attachments/assets/7d587574-8479-4c16-9500-d6b10b848ccc" /> <--- this is me btw
 
 hi!! go sign my ata!
 
