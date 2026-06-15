@@ -9,6 +9,7 @@ I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can 
 <img width="100" height="56" alt="dg7hsko-e0de36fa-21ad-481c-a3f7-dea405f29468" src="https://github.com/user-attachments/assets/db1f52b0-54ac-403c-b273-bf078499d661" />
 <img width="99" height="56" alt="dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920" src="https://github.com/user-attachments/assets/e88539e9-b927-4e8a-91aa-d870991e36f0" />
 <img width="100" height="56" alt="d8z8lzi-4a6ae174-e79b-4a97-8385-004ebc9cb393" src="https://github.com/user-attachments/assets/54fe92a8-b2e3-4391-95e6-9672f81ab11b" />
+<img width="50" height="30" alt="dg03yex-ce68de7b-7147-4406-b7ac-b8e9caf400e3" src="https://github.com/user-attachments/assets/f4b1f000-9de4-49bd-8596-30a7cce053a1" />
 <img width="50" height="30" alt="dg03l72-1ecf65fd-e306-448b-a255-117ef9824d23" src="https://github.com/user-attachments/assets/a8e0346c-a4a7-4cf6-ba0e-89f37e24b937" />
 
 please [don't copy my skins](https://i.imgur.com/oA1o5Be.png)
