@@ -12,4 +12,4 @@ I'm afk/offtab most of the time, I'd prefer if you whisper to interact so I can 
 <img width="20" height="20" alt="dm3e5pu-1409cba9-c7e5-4d50-ae62-2aa695c53b18" src="https://github.com/user-attachments/assets/767074b5-ff15-4334-bf91-f58a662e1f0c" />
 <img width="20" height="20" alt="dm3e0xy-1c29b89b-e3d1-4f34-9428-b60e72e322ed" src="https://github.com/user-attachments/assets/b4ede0f6-8923-410a-b451-1f8e3255221a" />
 
-please don't copy my skins! [someone already did it with my shadow and it SUCKS](https://i.imgur.com/oA1o5Be.png)
+please don't copy my skins! [someone already did it with my Shadow and it sucks](https://i.imgur.com/oA1o5Be.png)
