@@ -12,6 +12,6 @@ I'm afk/offtab most of the time, pls whisper to interact so I can eventually see
 <img width="100" height="56" alt="dg7hsko-e0de36fa-21ad-481c-a3f7-dea405f29468" src="https://github.com/user-attachments/assets/db1f52b0-54ac-403c-b273-bf078499d661" />
 <img width="99" height="56" alt="dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920" src="https://github.com/user-attachments/assets/e88539e9-b927-4e8a-91aa-d870991e36f0" />
 
-I'm a multishipper but sonadow will always be my otp! I love my beautiful princess Shadow and his stinky bf
+I'm a multishipper but Sonadow will always be my otp! I love my beautiful princess Shadow and his stinky bf
 
 do not copy my skins please! [don't be like this jerk that copied my Shadow](https://i.imgur.com/oA1o5Be.png)
