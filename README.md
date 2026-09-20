@@ -14,4 +14,4 @@ I'm afk/offtab most of the time, pls whisper to interact so I can eventually see
 
 I'm a multishipper but Sonadow will always be my otp! I love my beautiful princess Shadow and his stinky bf
 
-do not copy my skins please! [don't be like this jerk that copied my Shadow](https://i.imgur.com/oA1o5Be.png)
+do not copy my skins please ^-^
