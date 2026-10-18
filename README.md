@@ -1,5 +1,3 @@
-![](https://komarev.com/ghpvc/?username=cosmiceternityy&color=003D61&style=plastic&label=soniclings)
-
 <img width="20" height="20" alt="dm3e5pu-1409cba9-c7e5-4d50-ae62-2aa695c53b18" src="https://github.com/user-attachments/assets/767074b5-ff15-4334-bf91-f58a662e1f0c" />
 
 wip. probably.
