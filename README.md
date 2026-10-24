@@ -3,4 +3,4 @@
 
 I'm a multishipper but Sonadow has a grip on me
 
-don't be afraid to interact if you don't like the ship, I only talk abouth them when prompted!
+don't be afraid to interact if you don't like the ship, I only talk about them when prompted!
