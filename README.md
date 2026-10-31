@@ -2,5 +2,3 @@
 <img width="99" height="56" alt="dbrqiiz-cde14a45-bd31-4322-85c6-4fe124bb1920" src="https://github.com/user-attachments/assets/e88539e9-b927-4e8a-91aa-d870991e36f0" />
 
 I'm a multishipper but Sonadow has a grip on me
-
-don't be afraid to interact if you don't like the ship, I only talk about them when prompted!
